@@ -1,4 +1,4 @@
-# Avyns-links (if you have this dont share it)
+# Avyns-links (if you have the lil method don't share it)
 **!!!DONT FORGET THAT YOU NEED TO SIGN OUT OF IMPORTANT THINGS BEFORE WE TURN IN OUR CHROMEBOOKS TO AVOID PEOPLE IN YOUR ACCOUNTS!!!**
 
 
